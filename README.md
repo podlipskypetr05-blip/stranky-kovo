@@ -1,0 +1,2 @@
+# stranky-kovo
+stranky kovo
